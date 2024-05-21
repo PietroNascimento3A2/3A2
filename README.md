@@ -2,7 +2,7 @@
 
 Repositório da turma 3A2
 
-# Este é o repositório do aluno "Professor Fabiano Stege"
+# Este é o repositório do aluno "Pietro Gabriel Nascimento"
 
 Sejam todos bem vindos
 
