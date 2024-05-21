@@ -9,7 +9,7 @@ Sejam todos bem vindos
 
 
 
-![](https://tenor.com/hp62aBw7fnH.gif)
+![](https://media.tenor.com/hp62aBw7fnH.gif)
 
 contato email 📧 pietrogn18@gmail.com
 
