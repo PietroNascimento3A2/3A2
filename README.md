@@ -6,6 +6,7 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
+
 ![](https://tenor.com/hp62aBw7fnH.gif)
 
 contato email 📧 pietrogn18@gmail.com
